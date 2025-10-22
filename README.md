@@ -1,3 +1,3 @@
 ### Hi there 👋
 
-![Profile Banner](https://github.com/sabdawork/sabdawork/blob/main/1725447068352.jpg)
+![Profile Banner](https://avatars.githubusercontent.com/u/146692063?v=4)
