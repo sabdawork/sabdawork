@@ -1,3 +1,3 @@
 ### Hi there 👋
 
-![Profile Banner](https://github.com/user-attachments/assets/152c2c38-05ce-4826-b0a1-299b746a4c9a)
+![Profile Banner](https://github.com/user-attachments/assets/403d516b-1a0a-48a4-8128-f80efb74d9b1)
